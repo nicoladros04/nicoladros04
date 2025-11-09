@@ -22,6 +22,5 @@ Sto costruendo un percorso che unisca **la teoria ingegneristica** alle **abilit
 - Materiali avanzati e processi di produzione  
 - Sport e attività outdoor  
 
----
 
 
