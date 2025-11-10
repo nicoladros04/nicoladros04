@@ -20,7 +20,4 @@ Sto costruendo un percorso che unisca **la teoria ingegneristica** alle **abilit
 ## ⚙️ Interessi
 - Tecnologia e innovazione industriale  
 - Materiali avanzati e processi di produzione  
-- Sport e attività outdoor  
-
-
-
+- Sport e attività outdoor   
